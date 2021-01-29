@@ -21,6 +21,10 @@ Rien du tout car je dev pas ...
 
 Je posterai des script raid sur mon github dévloppé entierement par mon gentil ami "Takefy"
 
+### 🎄 A ne pas oubliez !
+
+kpri,Takefy,Baby vous destroy 🕶
+
 
 <br />
 <br />
